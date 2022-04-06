@@ -1,2 +1,4 @@
 # hello-world
 new to git
+My Strengths are:
+HARD WORKING, KEEP SMILING, POSITIVE THINKING AND SELF CONFIDENT
